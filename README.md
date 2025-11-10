@@ -1,0 +1,1 @@
+# Samopsttm.uz
